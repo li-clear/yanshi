@@ -1,2 +1,0 @@
-# yanshi
-xiaoguoyanshi
